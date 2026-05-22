@@ -1,2 +1,0 @@
-# zacharywquinn.github.io
-Portfolio
